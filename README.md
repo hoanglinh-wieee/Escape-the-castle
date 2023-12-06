@@ -1,5 +1,1 @@
-# Escape-the-castle
-â
-â
-adđ
-ccc
+game cho chó chơi
